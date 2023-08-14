@@ -14,7 +14,7 @@ uuid生成：https://1024tools.com/uuid
 
 付费域名注册：www.namesilo.com（付费域名注册和解析点击查看这个视频>>跳转到4分17秒处）
 
-workers win专用ip优选：下载地址>>
+workers win专用ip优选：下载地址>> https://jdssl.top/wp-content/uploads/2023/07/works%E4%B8%93%E7%94%A8ip%E4%BC%98%E9%80%89.zip
 
 ip查看：https://whatismyipaddress.com/
 
